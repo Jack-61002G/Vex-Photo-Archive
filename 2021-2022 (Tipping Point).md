@@ -10,6 +10,10 @@
 
 <img src="https://lh3.googleusercontent.com/pw/AP1GczN3w4PUWbGuJfGyARRmbOBa7B8vUJk-iVjjBq5gsvBqQVE2D427xD7gqI9mCqJP3AJ3T05D3O8RsoadMEr-a25z0zzQ0wMViV-n4FBRGQokAW-JQTNdNcziqnfYG9cHTqVOvTXxTKLN6y5anBKMiKeAtg=w1260-h945-s-no-gm?authuser=0" height="250"/>
 
+[1669X](https://photos.app.goo.gl/Nf7DijqmKBQHoJE79)
+
+<img src="https://lh3.googleusercontent.com/pw/AP1GczNBNmQOW43zvdjfhv7QpFa6x7LXsmF0jPP0erDmGVb_rWro7mkyC95cJ-84s69-_p88NlyVuRGrXuWjtEX3oIMCBe8bC8fyU-FKpLFj6wj2eBwoIv6i60Gkqg8xDYHWdUOHQSE-UjntKWQvukEzH3D3=w1680-h945-s-no-gm?authuser=0" height="250"/>
+
 [1727B](https://photos.app.goo.gl/Y5tgx49faif5mcj77)
 
 <img src="https://lh3.googleusercontent.com/pw/AP1GczPVSBTpQXA8YEQwSjaX3xEb5Y6WoRJdQVAakU0_B84s9YQHJypKrDnP2A8qC7T0GgsJ2G36GB9kXwevyqF39CK3f4mN8H8poI2BW2tqeYJMrCzY160Wb8F-rN5PctqTCF0LIOIUG--l2NKtaBLI_8okJA=w1260-h945-s-no-gm?authuser=0" height="250"/>
