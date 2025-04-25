@@ -72,6 +72,10 @@
 
 <img src="https://lh3.googleusercontent.com/pw/AP1GczMU2YnZoJbapBt-QcAOyEbGxujT12zTlpC1zLhLOQzCnhbmDerAbgI4H_4tt0e6hBxmsPXsdlE--To3dQjves3Wzh57UxmE4PuAangyGFVKI63jLhmBqBmo13tFbtwU4Gi_q5RF53Cs8vSgMstB_Y4jJA=w709-h945-s-no-gm?authuser=0" height="250"/>
 
+[EZ - Squidward x Squilliam](https://photos.app.goo.gl/FFQo3ijuPFb9XukG9)
+
+<img src="https://lh3.googleusercontent.com/pw/AP1GczOk7M7OWi5Re-ZmH6XdJO8jTyT-SjcE44GyUBZ4IYfYA40vRCxYXjqy_K8ZArBFzzmNptT-fcY2ujPXW2TjHsaCQjvuVNKOK7gXFltbUcbIcHHKQbQjeIOInWatppimS5JK1locZ1Xe20V4z9X2REAWdw=w1276-h957-s-no-gm?authuser=0" height="250"/>
+
 [RIT - Icarus](https://photos.app.goo.gl/APDxga3HLZMvvrcf6)
 
 <img src="https://lh3.googleusercontent.com/pw/AP1GczN_E2qYiue-RnMrmUHZHVkWCY1gMDy4tqzVip0gtbTeP6iBQ94fV1MY8Jx8uotRAprdIN-y3aBoRuvsm-MqFHzw9Hof2U61uMgpU16e1s3aRR0DWpvEO_A1NE0rMvXmWNwsGSu6VQPXnpamAnrilWUf=w1648-h945-s-no-gm?authuser=0" height="250"/>

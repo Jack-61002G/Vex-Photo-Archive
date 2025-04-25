@@ -1,4 +1,3 @@
-<img src="" height="250"/>
 
 [21S - shit bot high stakes](https://photos.app.goo.gl/9ksWWY5DH3zrpkBLA)
 
