@@ -1,3 +1,19 @@
+[21S - shit bot](https://photos.app.goo.gl/8piFFjstgmNfCPWg9)
+
+<img src="https://lh3.googleusercontent.com/pw/AP1GczOQTwggzAUSJrcqqKiDRYq32Pic3VEkXkkjaWKyDeWXNGR8QsgdrNUztRVKH7dcfuc24cqkJB1_2SUlZrQN9YnT78t7O2GTlTWmz4198i_RdJ3eRczytbV21XZkzUa6accGe3MyxG7qt9mUoutEx1N_vQ=w721-h957-s-no-gm?authuser=0" height="250"/>
+
+[21S - mochi](https://photos.app.goo.gl/bysiaa1uTnJteaMg7)
+
+<img src="https://lh3.googleusercontent.com/pw/AP1GczMD6DtPqjFi3ERTSl88SF3M0zQZIZeKH4eUl-CU_jBq6zhitWknvaOF8jUiC2H7CEa3yq9w-HRyubCejee3AgFNaQKVQ2bquRKeTYkOQgZ-nxcgNqkHuPCaH2uf_4XcsY2eCfxdRYO_BCNYjpjXeiuUfA=w1444-h957-s-no-gm?authuser=0" height="250"/>
+
+[21S - manju](https://photos.app.goo.gl/RpU3aVyD6af27Swe8)
+
+<img src="https://lh3.googleusercontent.com/pw/AP1GczPJdRYNsHU786qZYpcV093NaKZW3bcQI4IfUNfW7en05kip76thvclm1ud5zdI2mqFN6mlCkYUtYmAZR8F0vxiHbXuf_82apOhSJC_mjS9HXEpMfNVMM1kOxmTqFNNECsPqti0UZBMqGUOObq7zo3HFKQ=w718-h957-s-no-gm?authuser=0" height="250"/>
+
+[21S - dango](https://photos.app.goo.gl/vxdK2Z7y8qZ3Ceqt7)
+
+<img src="https://lh3.googleusercontent.com/pw/AP1GczPn6bcKTVOGcOJ8EhQ65wWBBO5zOU1lN4lOuczPjObgrV8WSRr95en-elkl7vMOXJOXgm-JBbKpppHWl5ddtsOHSCZPJdlzr-9QVGmelF4dUE8TDRikH-JpL4Fa44nEskwc108vm76EORLF0xun0X3YuQ=w600-h800-s-no-gm?authuser=0" height="250"/>
+
 [4148Z](https://photos.app.goo.gl/Kjky2qGtzujR7Qtm6)
 
 <img src="https://lh3.googleusercontent.com/pw/AP1GczOA8uH_335WlHg0dOq4Zf5CYZiVOVG7OYp8AsvVkzykzkSEXcSLqTNgvCip-M2z99mthlIbNBqZukBree35KW8lypCXi-L-_4f3ZlA6y5Y-5kLuikf8aUprH--Z_tMiIVB-seYUSFtEoG1pMnU1xUOX=w1260-h945-s-no-gm?authuser=0" height="250"/>
