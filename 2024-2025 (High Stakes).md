@@ -18,3 +18,7 @@
 [21S - taki](https://photos.app.goo.gl/M3VXHh1BiX4s7tn37)
 
 <img src="https://lh3.googleusercontent.com/pw/AP1GczN0e8rmrP2av0hkvVbAFgOaYMffQsYDOF1E9UhM4scQic3fXcj8WZ-vho6dMurlExvNucTiKoCjh7N2uqRZK01q3efkORmuKR_S6Ju1p_1g-3o3kgJEisu33HuoillD12_OWvO6eWIFJLoT7MuP96PCsw=w538-h957-s-no-gm?authuser=0" height="250"/>
+
+[61002G](https://photos.app.goo.gl/5YB5RrP6pM5jREYt7)
+
+<img src="https://lh3.googleusercontent.com/pw/AP1GczObux2lizpOEsNsVoxUI8uX99s-XtHtc34Saz9GvPh5P1bPmwdkmuvQMwm0hCjfeN6ZFyFdhJYOoUGRrZ0vQvaljb3kU-eykwdSgvgteiSFf14JksrGbsa6rzfrTdhw9GnkcVqRf-ADEmm8D68jcUo3Yw=w718-h957-s-no-gm?authuser=0" height="250"/>

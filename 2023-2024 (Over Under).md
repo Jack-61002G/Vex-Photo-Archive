@@ -42,6 +42,10 @@
 
 <img src="https://lh3.googleusercontent.com/pw/AP1GczNymRuB1D-1nsn045z8zMbJ8_MA50BPPm1gsb1d3_Q8-igHXwcMRDcA7S7bm8WVsZPGDkBpiCq-c6elx0UZLhrgMeAWm9-_MKV-bbLZZDm1Sn4xRhwuirI3yoXFZNm4ykWlEPUIcsCwe176WRmAGLjbYw=w1260-h945-s-no-gm?authuser=0" height="250"/>
 
+[61002G](https://photos.app.goo.gl/8YGQg4xn6ZfZC8mB8)
+
+<img src="https://lh3.googleusercontent.com/pw/AP1GczMeDTpk2LcQwnloJpOHliiettXGd30-isRnmBLKxoLyJkV9Ld7DKuLZk7Bw8MM8IaLdxpG3H49q2ifTESPVaTxOR-mw2Y-FWufQNCre1eBs1m8EQefdERNHDm-RmJjhRDOfBnb_29-6a5Cz9MSKdkKomQ=w1436-h957-s-no-gm?authuser=0" height="250"/>
+
 [80508X](https://photos.app.goo.gl/mQ7EYB26zazeS2Jr8)
 
 <img src="https://lh3.googleusercontent.com/pw/AP1GczOn-jVfUNPxhfbmga9rd6GGJiIzKKuyThecWNbVVRygKnrItFOapGVyTRp8bcA17UtsgrmwbBHMHnqyC8DM00f9Zi6CoKYJdEq9AOAC4QT4X6rN0sHXMEts-iorI7CoIMWvRCBlQtIU8y7c-M9ltzDz=w1260-h945-s-no-gm?authuser=0" height="250"/>
