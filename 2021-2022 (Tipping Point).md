@@ -1,3 +1,7 @@
+[21S - ALBERT (Worldsbot 2022)](https://photos.app.goo.gl/3W8ZXHaPBv4tSBnx7)
+
+<img src="https://lh3.googleusercontent.com/pw/AP1GczMp7bYIIxeGndVi-iutNLI543kJUpix9UCpJPjTv09--OZzti5BHcXcNs5HIJRu54c7BTRHKr2AKlHex_4LXAynNOpIweFGfonIpooW5GcWt3YARsCFyrf3zqkNizF6lvO4vFggfTHuzWMwU3Ejvyjn=w1276-h957-s-no-gm?authuser=0" height="250"/>
+
 [24K](https://photos.app.goo.gl/SrBerxsSmyoUh1G19)
 
 <img src="https://lh3.googleusercontent.com/pw/AP1GczPAnJbxzcNvxOrXWUyNGas4d3I9f4VRN5H4PKUTYGkfAYzDV9wOmc6ixhrw7NMmj1h_DTz4zRcc0_QQ4RMr6oWhxiQgcxsTpAkCK-q8Q7ESkM9gLNp7WjnJUlgizWEg50jkA0c0XDXNi14UYbpfqpMX=w709-h945-s-no-gm?authuser=0" height="250"/>
@@ -5,6 +9,10 @@
 [91F](https://photos.app.goo.gl/FF9gQZ3q8uA5dFXz5)
 
 <img src="https://lh3.googleusercontent.com/pw/AP1GczMbVzhS5uizsgCyweVmUiL8LJWNnTTEb8xWG2HZChTKZEuTX4pPS0PePeBdNW4_pb2gdRIQL1bZzrrRfh5JhDYv07ysc3S-snKiqrCeSa-_talHadu1SKjDMRPPOB7oxp-d_D3SKj_JMGGguoxcfWhtjQ=w709-h945-s-no-gm?authuser=0" height="250"/>
+
+[471X - TiP Worlds Bot](https://photos.app.goo.gl/W5mgBGKb8rVJTzif9)
+
+<img src="https://lh3.googleusercontent.com/pw/AP1GczOQeCdvSPnSpa8gJsuy16mN_5jTtL8J6joI3L93uKrgvnDnOlZzyBOT1bYrWSwni-diSJYe6_DzZFQA-LLBSipZmXyBShwEP5NwxUdQawkMDiLMYhH_RjkQfGu89yuk8J_GBpiPGgsqLlFmfNnHiuW2ZA=w718-h957-s-no-gm?authuser=0" height="250"/>
 
 [675D - V2](https://photos.app.goo.gl/r8wGRSWLx9GYaysM8)
 

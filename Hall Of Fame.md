@@ -2,6 +2,10 @@
 
 <img src="https://lh3.googleusercontent.com/pw/AP1GczOrp5THQ0-o7yYon0gn3DJ1gSnEBEyCzW9sGPO_zy9e7N6QQ5tXfOq3wX4Bc2kJRkVTm5Rz7GYf3LKc3wHKWZjx81qTk4Q1W-wDDiAYYeYXYtDUt7u9FDzy4TdbnwW9tmmTF6qGWDWQiS5npIUtjG-f=w1530-h957-s-no-gm?authuser=0" height="250"/>
 
+[471X - TiP Worlds Bot](https://photos.app.goo.gl/W5mgBGKb8rVJTzif9)
+
+<img src="https://lh3.googleusercontent.com/pw/AP1GczOQeCdvSPnSpa8gJsuy16mN_5jTtL8J6joI3L93uKrgvnDnOlZzyBOT1bYrWSwni-diSJYe6_DzZFQA-LLBSipZmXyBShwEP5NwxUdQawkMDiLMYhH_RjkQfGu89yuk8J_GBpiPGgsqLlFmfNnHiuW2ZA=w718-h957-s-no-gm?authuser=0" height="250"/>
+
 [675D - V2](https://photos.app.goo.gl/r8wGRSWLx9GYaysM8)
 
 <img src="https://lh3.googleusercontent.com/pw/AP1GczN3w4PUWbGuJfGyARRmbOBa7B8vUJk-iVjjBq5gsvBqQVE2D427xD7gqI9mCqJP3AJ3T05D3O8RsoadMEr-a25z0zzQ0wMViV-n4FBRGQokAW-JQTNdNcziqnfYG9cHTqVOvTXxTKLN6y5anBKMiKeAtg=w1260-h945-s-no-gm?authuser=0" height="250"/>
